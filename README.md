@@ -1,0 +1,5 @@
+- 👋 Hola, soy TecnoCode
+- 👀 Estoy Inteserado en la informatica, hardware, programacion y todo lo que tenga que ver con tecnologia
+- � Fan de Star Wars, Mr Retro, Iron Maiden, Guitar Hero y Starcraft 
+- � Hago Videos de Informatica y tecnologia en general en mi canal de youtube, https://www.youtube.com/channel/UCMzn000MT684ct5Zr3cVeUw uwu
+- Un Desperdicio de Ser Humano :D
