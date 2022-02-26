@@ -1,4 +1,5 @@
 - 👋 Hola, soy TechCore
+- Tengo 15 Años
 - 👀 Estoy Inteserado en la informatica, hardware, programacion y todo lo que tenga que ver con tecnologia
 - � Me gusta escuchar música
 - � Hago Videos de Informatica y tecnologia en general en mi canal de youtube, http://www.youtube.com/channel/UCxYwt3czBJbjJCkSeuzO5dA uwu
