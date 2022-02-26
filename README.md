@@ -1,6 +1,6 @@
 - 👋 Hola, soy TechCore
 - 👀 Estoy Inteserado en la informatica, hardware, programacion y todo lo que tenga que ver con tecnologia
-- � Fan de Star Wars, Mr Retro, Iron Maiden, Guitar Hero y Starcraft 
+- � Me gusta escuchar música
 - � Hago Videos de Informatica y tecnologia en general en mi canal de youtube, http://www.youtube.com/channel/UCxYwt3czBJbjJCkSeuzO5dA uwu
 - Un Desperdicio de Ser Humano :D
 - Tenia un canal con 50 subs y 5.000 vistas en total, pero me lo tumbaron por algo que no hice y yt no me quiere devolver el canal
